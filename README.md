@@ -2,3 +2,13 @@
 
 
 ---
+
+
+# HABILIDADES:
+
+- Boa comunicação;
+- Autonomia;
+- Resiliência.
+
+
+---
