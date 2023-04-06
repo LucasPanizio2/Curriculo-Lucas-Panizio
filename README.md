@@ -32,13 +32,11 @@
 
 ---
 
-# HABILIDADES:
+# HABILIDADES E IDIOMAS:
 
+- Inglês intermediário
+- Espanhol básico
 - Boa comunicação;
 - Autonomia;
 - Resiliência.
 
-# INFORMAÇÕES ADICIONAIS:
-
-- Inglês intermediário
-- Espanhol básico
