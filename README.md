@@ -38,4 +38,7 @@
 - Autonomia;
 - Resiliência.
 
----
+# INFORMAÇÕES ADICIONAIS:
+
+- Inglês intermediário
+- Espanhol básico
