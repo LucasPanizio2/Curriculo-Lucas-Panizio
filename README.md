@@ -30,3 +30,12 @@
 - Coca-Cola Femsa: 2021 a atualmente
 - (Assistente Administrativo)
 
+---
+
+# HABILIDADES:
+
+- Boa comunicação;
+- Autonomia;
+- Resiliência.
+
+---
